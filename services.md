@@ -7,23 +7,23 @@ title: Services
 
 At your home during term-time in the North Bedfordshire area of:
 
-Olney, Newton Blossomville, Lavendon, Turvey, Biddenham, Great Denham, Bromham, Harrold, Carlton, Stevington, Sharnbrook, Oakley, Pavenham, Radwell, Milton Ernest, Clapham or Felmersham
+Olney, Newton Blossomville, Lavendon, Turvey, Bromham, Harrold, Carlton, Odell or Stevington.
 
-- **Pre-GCSE**: £30 per hour
-- **GCSE**: £33 per hour
+- **Pre-GCSE**: £32 per hour
+- **GCSE**: £34 per hour
 
 ## Online Tutoring
 
 Anywhere in the UK during term-time.
 
-- **Pre-GCSE**: £28 per hour
-- **GCSE**: £30 per hour
+- **Pre-GCSE**: £30 per hour
+- **GCSE**: £32 per hour
 
 ## Analysis and Written Feedback
 
 Marking and analysis of a completed GCSE past paper. This can be used as a one-off service, or as part of regular tutoring sessions.
 
-- **GCSE**: £30
+- **GCSE**: £32
 
 ## YouTube Channel
 
