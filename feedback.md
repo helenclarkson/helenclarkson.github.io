@@ -5,6 +5,12 @@ title: Feedback
 
 ## Feedback
 
+- "Thanks so much for all your expert, patient help Helen. [Student] made brilliant progress this year." — *Parent, June 2025*
+- "Thanks very much for all your excellent teaching and encouragement to get [Student] ready." — *Parent, June 2025*
+- "Thank you for all for your great work with [Student] it’s been a massive help!" — *Parent, June 2025*
+- "Thank you very much for what you've done for [Student]. Without you she couldn't have done it." — *Parent, June 2025*
+- "Thank you Helen! You have been very helpful and I'm so glad that I now understand topics I didn't before! 😄" — *Student, June 2025*
+- "Her transformational journey over the past 18 months has been incredible and I'm eternally grateful for all your help and belief on the journey." — *Parent, June 2025*
 - "You taught me maths and it made so much sense because of you! You always believed in me and never gave up on me and that kept me going" — *Student, May 2024*
 - "I think you have successfully reignited the enjoyment of maths that my daughter had slightly lost" — *Parent, May 2024*
 - "I want to say thank you for your help Helen with all the tutoring lessons. Without the lessons I seriously would have struggled with maths. Thank you so much once again!" — *Student, Jan 2024*
