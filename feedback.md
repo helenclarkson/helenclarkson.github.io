@@ -5,6 +5,9 @@ title: Feedback
 
 ## Feedback
 
+- "I'm really grateful for all your support and encouragement. Maths was extremely hard for me to grasp at first, but your sessions made it a lot easier. This helped me become more confident in my problem-solving abilities, which ultimately led me to achieve such a good grade." - *Student, Aug 2026*
+- "Thank you so much! Wouldn’t have been able to do it without your help." - *Student, Aug 2026*
+- "I would like to thank you for all of your support, both maths related and in general. Your thoughtfulness and genuine care are something I truly value and more importantly you've encouraged me to stand strong in my battles without losing hope." - *Student, June 2026*
 - "Thanks so much for all your expert, patient help Helen. [Student] made brilliant progress this year." — *Parent, June 2025*
 - "Thanks very much for all your excellent teaching and encouragement to get [Student] ready." — *Parent, June 2025*
 - "Thank you for all for your great work with [Student] it’s been a massive help!" — *Parent, June 2025*
